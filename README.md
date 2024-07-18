@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hprs.harshitofficial@gmail.com**
 
-- ⚡ Fun fact: **I love playing football**
+- ⚡ Fun fact: **I love playing football⚽**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
